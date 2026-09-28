@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/catia-p3-v5-6r2022-sp6/
 Product Price : 17,619 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
